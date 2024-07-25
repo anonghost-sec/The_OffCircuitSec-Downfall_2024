@@ -24,5 +24,5 @@
 
 
 ************
-https://github.com/R4GN4R0K-SEC/Anonghost
+<p align="center" ><i> https://anonghost-sec.github.io/The_OffCircuitSec-Downfall_2024 </i></p>
 
