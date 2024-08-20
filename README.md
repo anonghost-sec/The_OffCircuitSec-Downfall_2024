@@ -1,11 +1,28 @@
-# ![Auto Assign](https://github.com/anonghost-sec/demo-repository/actions/workflows/auto-assign.yml/badge.svg) 卐  卐  卐  卐  卐  卐 ![Proof HTML](https://github.com/anonghost-sec/demo-repository/actions/workflows/proof-html.yml/badge.svg)
+<h1><p align="center">
+   <image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/auto-assign.yml/badge.svg" /image>
+   ⚡️卐𝐓𝐇𝐄 𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂卐⚡️ 
+   <image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/proof-html.yml/badge.svg" /image></br> 
+   卐💀📉 𝐃𝐎𝐖𝐍𝐅𝐀𝐋𝐋 𝟐𝟎𝟐𝟒 📉💀卐 </p></h1></br>
 
--------------------
-
-<h1><p align="center"> ⚡️卐𝐓𝐇𝐄 𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂卐⚡️ </br> 卐💀📉 𝐃𝐎𝐖𝐍𝐅𝐀𝐋𝐋 𝟐𝟎𝟐𝟒 📉💀卐 </p></h1>  
+<h1><p align="center"> THE END OF THE </br> 
+    💀 卐 卐 卐 卐 卐 卐 💀 </br> 
+QANONKREMLIN PUPPETS </br>
+   COMEDY CLUB SHOW  </br> 
+   PRESENT </br></br>
+   ⚡ COSPLAYSEC ⚡ </br>
+   💀 卐  卐  卐  卐  卐  卐  卐  卐 💀 </br></br>
+   💩 OFFCIRCUITSEC 💩 </br></br> 
+   💀 卐  卐  卐  卐  卐  卐  卐  卐 💀 </br>
+   ⚡ NOBRAINSEC ⚡ </p></h1>
    
 -------------------
-![](https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/MichaelNaziMoon000.jpg?raw=true)
+
+<h2><p align="center">
+   <image src="https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/MichaelNaziMoon000.jpg?raw=true" />  
+   <image src="https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/jen004.png?raw=true" />  
+
+-------------------
+![](e)
 ![](https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/jen004.png?raw=true)
 ![](https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/kremlinPuppets001.jpg?raw=true)
 ![](https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/jen001.png?raw=true)
