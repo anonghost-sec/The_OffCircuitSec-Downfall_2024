@@ -1,9 +1,10 @@
 <h1><p align="center">
    <image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/auto-assign.yml/badge.svg" /image><image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/proof-html.yml/badge.svg" /image></br>
  <h1 align ="center"> 
-⚡️THE END OF THE ⚡️</br>
-𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂卐⚡️</br>  
-     📉 💀卐 </h1></br>
+🔥THE END🔥 </br>
+ ⚡️OF THE⚡️</br>
+💩𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂💩</br>  
+     卐💀卐 </h1></br>
 <h1 align="center">
     💀 卐 卐 卐 卐 卐 💀 </br> 
    AKA </br>
