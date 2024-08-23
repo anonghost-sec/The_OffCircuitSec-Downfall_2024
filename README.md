@@ -1,18 +1,17 @@
 <h1><p align="center">
-   <image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/auto-assign.yml/badge.svg" /image>
-   ⚡️卐𝐓𝐇𝐄 𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂卐⚡️ 
-   <image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/proof-html.yml/badge.svg" /image></br> 
-   卐💀📉 𝐃𝐎𝐖𝐍𝐅𝐀𝐋𝐋 𝟐𝟎𝟐𝟒 📉💀卐 </p></h1></br>
-
-<h1><p align="center"> THE END OF THE </br> 
-    💀 卐 卐 卐 卐 卐 卐 💀 </br> 
+   <image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/auto-assign.yml/badge.svg" /image><image src="https://github.com/anonghost-sec/demo-repository/actions/workflows/proof-html.yml/badge.svg" /image></br>
+   ⚡️卐𝐓𝐇𝐄 𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂卐⚡️</br>  
+     📉 𝐃𝐎𝐖𝐍𝐅𝐀𝐋𝐋 𝟐𝟎𝟐𝟒 📉 </br>
+            卐💀卐 </h1></br>
+<h1 align="center"> THE END OF THE </br> 
+    💀 卐 卐 卐 卐 卐 💀 </br> 
 QANONKREMLIN PUPPETS </br>
    COMEDY CLUB SHOW  </br> 
    PRESENT </br></br>
    ⚡ COSPLAYSEC ⚡ </br>
-   💀 卐  卐  卐  卐  卐  卐  卐  卐 💀 </br></br>
+   💀 卐  卐  卐  卐  卐  卐 💀 </br></br>
    💩 OFFCIRCUITSEC 💩 </br></br> 
-   💀 卐  卐  卐  卐  卐  卐  卐  卐 💀 </br>
+   💀 卐  卐  卐  卐  卐  卐 💀 </br>
    ⚡ NOBRAINSEC ⚡ </p></h1>
    
 -------------------
