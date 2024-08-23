@@ -49,7 +49,8 @@ CLUB SHOW </br>
 
 ---------------
 
-[卐-video-Downfall2024](https://github.com/user-attachments/assets/ba3fc185-d30d-47cc-9ea6-7effbb3b1714)
+<video align="center"> 
+<video href="卐-video-Downfall2024", -.ttps://github.com/user-attachments/assets/ba3fc185-d30d-47cc-9ea6-7effbb3b1714)
 
 
 
