@@ -3,9 +3,11 @@
  <h1 align ="center"> 
 🔥THE END🔥 </br>
  ⚡️OF THE⚡️</br>
-‐--------------------
+
+*********************
 𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂</br>  
-‐--------------------
+
+*********************
      卐💀卐 </h1></br>
 <h1 align="center">
     💀 卐 卐 卐 卐 卐 💀 </br> 
@@ -20,14 +22,15 @@ CLUB SHOW </br>
 💀 卐 卐 卐 卐 卐 💀 </br>
    ⚡ COSPLAYSEC ⚡</br>
    💀 卐  卐  卐  卐  卐 💀 </br></br>
-‐--------------------
-   💩OFFCIRCUITSEC </br></br> 
-‐--------------------
+*********************
+    OFFCIRCUITSEC </br></br> 
+
+*********************
    💀 卐  卐  卐  卐  卐 💀 </br>
    ⚡ NOBRAINSEC ⚡</p></h1>
-💀 卐 卐 卐 卐 卐 💀 </br>   
--------------------
+   💀 卐 卐 卐 卐 卐 💀 </br>   
 
+*********************
 <h2><p align="center">
    <image src="https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/MichaelNaziMoon000.jpg?raw=true" />  
    <image src="https://github.com/anonghost-sec/The_OffCircuitSec-Downfall_2024/blob/main/jen004.png?raw=true" />  
