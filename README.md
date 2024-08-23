@@ -3,22 +3,26 @@
  <h1 align ="center"> 
 🔥THE END🔥 </br>
  ⚡️OF THE⚡️</br>
-💩𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂💩</br>  
+‐--------------------
+𝐎𝐅𝐅𝐂𝐈𝐑𝐂𝐔𝐈𝐓𝐒𝐄𝐂</br>  
+‐--------------------
      卐💀卐 </h1></br>
 <h1 align="center">
     💀 卐 卐 卐 卐 卐 💀 </br> 
    AKA </br>
   QANONKREMLIN </br>
    PUPPETS </br>
-    💀 卐 卐 卐 卐 卐 💀 </br>
- AKA</br> 
+  💀 卐 卐 卐 卐 卐 💀 </br>
+also know as</br> 
 THE COMEDY</br> 
 CLUB SHOW </br> 
  PRESENT </br></br>
 💀 卐 卐 卐 卐 卐 💀 </br>
    ⚡ COSPLAYSEC ⚡</br>
    💀 卐  卐  卐  卐  卐 💀 </br></br>
-   💩OFFCIRCUITSEC💩</br></br> 
+‐--------------------
+   💩OFFCIRCUITSEC </br></br> 
+‐--------------------
    💀 卐  卐  卐  卐  卐 💀 </br>
    ⚡ NOBRAINSEC ⚡</p></h1>
 💀 卐 卐 卐 卐 卐 💀 </br>   
