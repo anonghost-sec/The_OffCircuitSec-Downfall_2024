@@ -9,9 +9,9 @@ QANONKREMLIN PUPPETS </br>
    COMEDY CLUB SHOW  </br> 
    PRESENT </br></br>
    ⚡ COSPLAYSEC ⚡ </br>
-   💀 卐  卐  卐  卐  卐  卐 💀 </br></br>
+   💀 卐  卐  卐  卐  卐 💀 </br></br>
    💩 OFFCIRCUITSEC 💩 </br></br> 
-   💀 卐  卐  卐  卐  卐  卐 💀 </br>
+   💀 卐  卐  卐  卐  卐 💀 </br>
    ⚡ NOBRAINSEC ⚡ </p></h1>
    
 -------------------
